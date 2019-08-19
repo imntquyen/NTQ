@@ -1,0 +1,2 @@
+# NTQ
+Thái Bạch
